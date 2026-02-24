@@ -1,16 +1,13 @@
-## Hi there 👋
+## usually afk or offtab!
 
-<!--
-**germanmeatshop/germanmeatshop** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+feel free to Interact though i may not talk much
 
-Here are some ideas to get you started:
+｡°⚠︎°｡c+h i bite thought ｡°⚠︎°｡
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+![](https://i.pinimg.com/736x/d1/df/e9/d1dfe9265ea7c86c2ead963b3efacabb.jpg) 
+
+![Roblox](https://img.shields.io/badge/Roblox-%230a0b0b.svg?style=for-the-badge&logo=Roblox&logoColor=white)![Steam](https://img.shields.io/badge/steam-%23000000.svg?style=for-the-badge&logo=steam&logoColor=white)![Itch.io](https://img.shields.io/badge/Itch-%23FF0B34.svg?style=for-the-badge&logo=Itch.io&logoColor=white)![Xbox](https://img.shields.io/badge/xbox-%23107C10.svg?style=for-the-badge&logo=xbox&logoColor=white)
+<p align="center">
+  <img width="80" height="100" src="https://img.itch.zone/aW1hZ2UvNTE4MTU0LzI2OTEyMjMuZ2lm/original/oYZd8i.gif" />
