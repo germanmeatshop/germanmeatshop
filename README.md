@@ -1,6 +1,6 @@
 ![d9jwiic-48fbc5b8-89ba-4b99-9112-47fb9efcce41](https://github.com/user-attachments/assets/c707930b-8ceb-4cf3-8dac-0b939b4783e1)
 
-feel free to Interact though i may not talk much, usually afk or offtab[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=xbl7wts44ftfv2ro60ol3lub2&cover_image=true&theme=novatorem&show_offline=true&background_color=670774&interchange=true&profanity=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=xbl7wts44ftfv2ro60ol3lub2&redirect=true)
+feel free to Interact though i may not talk much, usually afk or offtab [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hdz4w0r7swre6bmczy0m82uqj&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=hdz4w0r7swre6bmczy0m82uqj&redirect=true)
 
 ｡°⚠︎°｡c+h i bite thought ｡°⚠︎°｡ 
 
