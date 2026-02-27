@@ -1,6 +1,7 @@
-## usually afk or offtab!
+##![d9jwiic-48fbc5b8-89ba-4b99-9112-47fb9efcce41](https://github.com/user-attachments/assets/c707930b-8ceb-4cf3-8dac-0b939b4783e1)
 
-feel free to Interact though i may not talk much
+
+feel free to Interact though i may not talk much, usually afk or offtab!
 
 ｡°⚠︎°｡c+h i bite thought ｡°⚠︎°｡![d9jwiic-48fbc5b8-89ba-4b99-9112-47fb9efcce41](https://github.com/user-attachments/assets/c707930b-8ceb-4cf3-8dac-0b939b4783e1)
 
@@ -8,7 +9,7 @@ feel free to Interact though i may not talk much
 
 ![](https://i.pinimg.com/736x/d1/df/e9/d1dfe9265ea7c86c2ead963b3efacabb.jpg) 
 
-![Roblox](https://img.shields.io/badge/Roblox-%230a0b0b.svg?style=for-the-badge&logo=Roblox&logoColor=white)![Steam](https://img.shields.io/badge/steam-%23000000.svg?style=for-the-badge&logo=steam&logoColor=white)![Itch.io](https://img.shields.io/badge/Itch-%23FF0B34.svg?style=for-the-badge&logo=Itch.io&logoColor=white)![Xbox](https://img.shields.io/badge/xbox-%23107C10.svg?style=for-the-badge&logo=xbox&logoColor=white)![dog](https://github.com/user-attachments/assets/c4439c8d-b89d-414f-a0b6-537f3e0bdfc4)
+![](https://github.com/user-attachments/assets/1304317d-6e8a-44f7-b454-f03bbd913ee6)![dog](https://github.com/user-attachments/assets/c4439c8d-b89d-414f-a0b6-537f3e0bdfc4)
 
 
 <img width="99" height="56" alt="tumblr_df7b1097876e391c89af3384d1fdb01c_135d4bb4_100" src="https://github.com/user-attachments/assets/1582efee-cdba-462d-9e83-165d0fed1554" /> <img width="99" height="56" alt="58558d64" src="https://github.com/user-attachments/assets/e652c742-44d1-46f0-b7fc-865f674a4e2f" /> ![tumblr_bf7de985a6b623139dbed1012f36b073_ac61302a_100](https://github.com/user-attachments/assets/02f158fc-4c23-4c0e-9ff9-48661135ffe7)
@@ -29,30 +30,5 @@ src="https://github.com/user-attachments/assets/1b82a1b2-bd0f-4778-b25e-f097b79d
 
  
   ![](https://github.com/user-attachments/assets/0faa19a4-07cc-4266-8d5f-af8ff8135d8c)
-
-
-
-![1b3a1187](https://github.com/user-attachments/assets/74ba3a2a-3b0b-428e-9f71-cccd5e8f3c7e)![vA6hriw](https://github.com/user-attachments/assets/1e31ac66-3759-465b-8cfe-603df2c064db)![IMG_8775](https://github.com/user-attachments/assets/1304317d-6e8a-44f7-b454-f03bbd913ee6)
-
-
-![d9jwiic-48fbc5b8-89ba-4b99-9112-47fb9efcce41](https://github.com/user-attachments/assets/c707930b-8ceb-4cf3-8dac-0b939b4783e1)
-
-
-
-
-<img width="99" height="56" alt="tumblr_df7b1097876e391c89af3384d1fdb01c_135d4bb4_100" src="https://github.com/user-attachments/assets/1582efee-cdba-462d-9e83-165d0fed1554" /> <img width="99" height="56" alt="58558d64" src="https://github.com/user-attachments/assets/e652c742-44d1-46f0-b7fc-865f674a4e2f" /> ![tumb](https://github.com/user-attachments/assets/7b68a500-dc30-4bcd-873c-8cb97c80633b) <img width="99" height="56" alt="tumblr_9a4b09cc0cfc520694a256ebbac762fc_c38b797a_100" src="https://github.com/user-attachments/assets/e2429302-c669-4d58-b249-953d352d5a10" /> 
-
-<img width="99" height="56" alt="tumblr_4c9047d2aca459c32e39092e267f9ed4_148f0ab4_100" 
-src="https://github.com/user-attachments/assets/1b82a1b2-bd0f-4778-b25e-f097b79d49f9" /> <img width="99" height="57" alt="tumblr_af0913292367a9c708ee55577cac80d8_5c30426d_100" src="https://github.com/user-attachments/assets/ce293ec3-ccaa-4bc4-ac8e-6e42f0bc73a5" /> <img width="99" height="56" alt="353f1847" src="https://github.com/user-attachments/assets/c3ce4541-7a2f-422d-9feb-59a4d166db11" /> ![ug51pc](https://github.com/user-attachments/assets/ea3fcc60-bd17-4c29-9d8c-cabcadeffc21)
-
-![tumblr_bf7de985a6b623139dbed1012f36b073_ac61302a_100](https://github.com/user-attachments/assets/02f158fc-4c23-4c0e-9ff9-48661135ffe7)
-
-
-
-
-
-
-
-
 
 
