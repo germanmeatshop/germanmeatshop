@@ -1,13 +1,12 @@
-##![d9jwiic-48fbc5b8-89ba-4b99-9112-47fb9efcce41](https://github.com/user-attachments/assets/c707930b-8ceb-4cf3-8dac-0b939b4783e1)
+![d9jwiic-48fbc5b8-89ba-4b99-9112-47fb9efcce41](https://github.com/user-attachments/assets/c707930b-8ceb-4cf3-8dac-0b939b4783e1)
+
+feel free to Interact though i may not talk much, usually afk or offtab! 
+
+｡°⚠︎°｡c+h i bite thought ｡°⚠︎°｡ 
 
 
-feel free to Interact though i may not talk much, usually afk or offtab!
+![](https://i.pinimg.com/originals/f3/a1/b6/f3a1b6aa1745c14ea8964c0765f22d61.gif) <img width="260" height="260" alt="58558d64" src="https://i.pinimg.com/736x/d1/df/e9/d1dfe9265ea7c86c2ead963b3efacabb.jpg" /> 
 
-｡°⚠︎°｡c+h i bite thought ｡°⚠︎°｡![d9jwiic-48fbc5b8-89ba-4b99-9112-47fb9efcce41](https://github.com/user-attachments/assets/c707930b-8ceb-4cf3-8dac-0b939b4783e1)
-
-
-
-![](https://i.pinimg.com/736x/d1/df/e9/d1dfe9265ea7c86c2ead963b3efacabb.jpg) 
 
 ![](https://github.com/user-attachments/assets/1304317d-6e8a-44f7-b454-f03bbd913ee6)![dog](https://github.com/user-attachments/assets/c4439c8d-b89d-414f-a0b6-537f3e0bdfc4)
 
@@ -31,4 +30,4 @@ src="https://github.com/user-attachments/assets/1b82a1b2-bd0f-4778-b25e-f097b79d
  
   ![](https://github.com/user-attachments/assets/0faa19a4-07cc-4266-8d5f-af8ff8135d8c)
 
-
+  ![](https://github.com/user-attachments/assets/0faa19a4-07cc-4266-8d5f-af8ff8135d8c)
