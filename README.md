@@ -12,7 +12,7 @@ feel free to Interact though i may not talk much, usually afk or offtab ![d9jwii
 
 
 <img width="99" height="56" alt="tumblr_df7b1097876e391c89af3384d1fdb01c_135d4bb4_100" src="https://github.com/user-attachments/assets/1582efee-cdba-462d-9e83-165d0fed1554" /> <img width="99" height="56" alt="58558d64" src="https://github.com/user-attachments/assets/e652c742-44d1-46f0-b7fc-865f674a4e2f" /> ![tumblr_bf7de985a6b623139dbed1012f36b073_ac61302a_100](https://github.com/user-attachments/assets/02f158fc-4c23-4c0e-9ff9-48661135ffe7)
-<img width="99" height="56" alt="tumblr_9a4b09cc0cfc520694a256ebbac762fc_c38b797a_100" src="https://github.com/user-attachments/assets/e2429302-c669-4d58-b249-953d352d5a10" /> -------------------------------------------------------------![](https://64.media.tumblr.com/c4bf6020d079eca4489dc4595d36f488/ebb94b3cf618e842-f7/s100x200/3d7cbc222010afcf9c787c47fca8f3b09a162212.gifv)
+<img width="99" height="56" alt="tumblr_9a4b09cc0cfc520694a256ebbac762fc_c38b797a_100" src="https://github.com/user-attachments/assets/e2429302-c669-4d58-b249-953d352d5a10" /> --------------------------------------------------------![](https://64.media.tumblr.com/c4bf6020d079eca4489dc4595d36f488/ebb94b3cf618e842-f7/s100x200/3d7cbc222010afcf9c787c47fca8f3b09a162212.gifv)
 
 
 <img width="99" height="56" alt="tumblr_4c9047d2aca459c32e39092e267f9ed4_148f0ab4_100" 
