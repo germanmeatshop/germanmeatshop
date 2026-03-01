@@ -1,14 +1,17 @@
-feel free to Interact though i may not talk much, usually afk or offtab ![d9jwiic-48fbc5b8-89ba-4b99-9112-47fb9efcce41](https://github.com/user-attachments/assets/c707930b-8ceb-4cf3-8dac-0b939b4783e1)
-</p>
-  <p align="left">
- ｡°⚠︎°｡c+h i bite thought ｡°⚠︎°｡> 
+<img width="150" height="150" src="https://64.media.tumblr.com/a2aec889f47a6714042e2acb3bcd5c00/06757994d15fc386-e5/s250x400/dfb4d9c9c61ae6ffe13e61a31015b592a76d214f.pnj" /><img width="150" height="150" src="https://64.media.tumblr.com/fdd7434a0af9236e173cbe4fef8d64d1/06757994d15fc386-f7/s250x400/a8a34f4af5430063300e5ea51c45e784a93ab3e3.pnj" /> ![](https://64.media.tumblr.com/b925a783606f554c75963a80c42635ea/06757994d15fc386-f4/s400x600/7c636ca9e60c9117c71ce099e969ea73d67dfe66.gifv) <img width="150" height="150" src="https://64.media.tumblr.com/83a63347378d4762543f7d21dbb105ac/06757994d15fc386-89/s250x400/4722293bf187e1f50fbfc9ffb793e8230ec61f60.pnj" /> <img width="150" height="150" src="https://64.media.tumblr.com/192f0553f0ef764420d03bad2dcd7769/06757994d15fc386-e9/s250x400/4b7bf989143dec9bdd7b30ee50fa944edb328d8a.pnj" />
+
+
+
+feel free to Interact though i may not talk much, usually afk or offtab 
+
+ ｡°⚠︎°｡c+h i bite thought ｡°⚠︎°｡ ![d9jwiic-48fbc5b8-89ba-4b99-9112-47fb9efcce41](https://github.com/user-attachments/assets/c707930b-8ceb-4cf3-8dac-0b939b4783e1)
   
  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hdz4w0r7swre6bmczy0m82uqj&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=hdz4w0r7swre6bmczy0m82uqj&redirect=true) <img width="190" height="190" src="https://dl.glitter-graphics.com/pub/3331/3331117usfzujzlux.gif" />  <img width="150" height="150" src="https://dl.glitter-graphics.com/pub/3641/3641492mdeigjacu9.gif" />
 
 ![](https://i.pinimg.com/originals/f3/a1/b6/f3a1b6aa1745c14ea8964c0765f22d61.gif) <img width="260" height="260" alt="58558d64" src="https://i.pinimg.com/736x/d1/df/e9/d1dfe9265ea7c86c2ead963b3efacabb.jpg" /> 
 
 
-![](https://64.media.tumblr.com/75db50f7e43d9cd6d29ca29efce853f1/8e88a07d74be7e33-1f/s100x200/f28278469487f137e3387e88e13d1b270dafd586.gifv)![](https://64.media.tumblr.com/024ba0684d881c5b4f77b96781410b5b/9ac1cce9553aeeff-53/s100x200/f81709dabd3a834566d679e2fd876caad8ec137d.pnj)![](https://github.com/user-attachments/assets/1304317d-6e8a-44f7-b454-f03bbd913ee6)![dog](https://github.com/user-attachments/assets/c4439c8d-b89d-414f-a0b6-537f3e0bdfc4)
+![](https://64.media.tumblr.com/f111d53917071a090515c6130c32f698/279b99403dcb5acd-de/s250x400/72083b6666416d961e4ccfa2b5e58ab573896345.gifv)![](https://64.media.tumblr.com/75db50f7e43d9cd6d29ca29efce853f1/8e88a07d74be7e33-1f/s100x200/f28278469487f137e3387e88e13d1b270dafd586.gifv)![](https://64.media.tumblr.com/024ba0684d881c5b4f77b96781410b5b/9ac1cce9553aeeff-53/s100x200/f81709dabd3a834566d679e2fd876caad8ec137d.pnj)![](https://github.com/user-attachments/assets/1304317d-6e8a-44f7-b454-f03bbd913ee6)![dog](https://github.com/user-attachments/assets/c4439c8d-b89d-414f-a0b6-537f3e0bdfc4)
 
 
 <img width="99" height="56" alt="tumblr_df7b1097876e391c89af3384d1fdb01c_135d4bb4_100" src="https://github.com/user-attachments/assets/1582efee-cdba-462d-9e83-165d0fed1554" /> <img width="99" height="56" alt="58558d64" src="https://github.com/user-attachments/assets/e652c742-44d1-46f0-b7fc-865f674a4e2f" /> ![tumblr_bf7de985a6b623139dbed1012f36b073_ac61302a_100](https://github.com/user-attachments/assets/02f158fc-4c23-4c0e-9ff9-48661135ffe7)
