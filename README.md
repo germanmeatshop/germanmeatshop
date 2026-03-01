@@ -6,7 +6,7 @@ feel free to Interact though i may not talk much, usually afk or offtab
 
  ｡°⚠︎°｡c+h i bite thought ｡°⚠︎°｡ ![d9jwiic-48fbc5b8-89ba-4b99-9112-47fb9efcce41](https://github.com/user-attachments/assets/c707930b-8ceb-4cf3-8dac-0b939b4783e1)
   
- [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hdz4w0r7swre6bmczy0m82uqj&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=hdz4w0r7swre6bmczy0m82uqj&redirect=true) -----------------------------------<img width="190" height="190" src="https://dl.glitter-graphics.com/pub/3331/3331117usfzujzlux.gif" />  <img width="150" height="150" src="https://dl.glitter-graphics.com/pub/3641/3641492mdeigjacu9.gif" />
+ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hdz4w0r7swre6bmczy0m82uqj&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=hdz4w0r7swre6bmczy0m82uqj&redirect=true) -------------------------------<img width="190" height="190" src="https://dl.glitter-graphics.com/pub/3331/3331117usfzujzlux.gif" />  <img width="150" height="150" src="https://dl.glitter-graphics.com/pub/3641/3641492mdeigjacu9.gif" />
 
 <img width="260" height="260" alt="58558d64" src="https://i.pinimg.com/736x/d1/df/e9/d1dfe9265ea7c86c2ead963b3efacabb.jpg" /> --------------------![](https://i.pinimg.com/originals/f3/a1/b6/f3a1b6aa1745c14ea8964c0765f22d61.gif)
 
